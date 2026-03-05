@@ -90,6 +90,10 @@
 
 *<p align="center">Fierce as I walk through the night*
 
+![IMG_7859](https://github.com/user-attachments/assets/cebd95c4-9479-4c00-b38e-cc80aa041c97)
+
+![IMG_7856](https://github.com/user-attachments/assets/952a610b-bf90-46f8-bbdb-822ed4972e96)
+
 
 
 <!--
