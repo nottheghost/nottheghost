@@ -1,8 +1,12 @@
 ![](https://komarev.com/ghpvc/?username=nottheghost&label=⚰︎&color=010101)   
 
-remaking.. heres a kokichi until im done
 
-![IMG_7842](https://github.com/user-attachments/assets/f9993bd5-6d30-4921-9605-c735a0bcb3b3)
+<img width="564" height="188" alt="Untitled602_20260312134046" src="https://github.com/user-attachments/assets/4fa56e08-786e-4777-9d35-6260f64f5605" />
+
+<img width="1000" height="929" alt="Untitled600_20260312125907" src="https://github.com/user-attachments/assets/f08ff685-b667-441b-ae26-d637b02175ec" />
+
+
+this shit is so ugly (wip)
 
 
 
