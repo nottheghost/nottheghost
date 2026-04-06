@@ -5,6 +5,8 @@
 
 <img width="1000" height="929" alt="Untitled600_20260401003452" src="https://github.com/user-attachments/assets/8eca3432-eb83-4fc5-8cba-9922a08808b0" />
 
+<div align="center"><details> <summary>$${\color{706254} ⟡}$$</summary></summary> byi : WIP<p></p></details> </div>
+
 <img width="734" height="235" alt="Untitled605_20260401003757" src="https://github.com/user-attachments/assets/e15613f0-f497-4ac4-b356-a93e3db0569f" />
 
 
