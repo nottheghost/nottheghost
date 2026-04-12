@@ -1,6 +1,6 @@
 
 ![](https://komarev.com/ghpvc/?username=nottheghost&label=𖦏&color=719973)
-[𖣂](https://drownyouout.straw.page) 
+[𖣂](https://drownyouout.straw.page) <- click me for info
 
 <img width="732" height="105" alt="Untitled613_20260413000144" src="https://github.com/user-attachments/assets/cf358c57-6102-4ace-a345-b6a20c1c11d3" />
 
